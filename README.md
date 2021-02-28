@@ -1,1 +1,1 @@
-https:/IrynaSharhayeva.io/rsschool-cv/cv
+https://IrynaSharhayeva.io/rsschool-cv/cv
